@@ -13,4 +13,4 @@ gosto de assistir filmes, ir em festas...✨
 para meu futuro estava pensano em fazer mediína veterinaría 
 meus planos de casorio: ou agronomo, ou laçador, ou pião,
 ou fazendeiro, ou herdeito, ou jogador, todos os tipos de pretos todos as tonalidades,
-ou velho rico, ou trabalhador, ou preto tatuado, ou rutinha...🙄
+ou velho rico, ou trabalhador, ou preto tatuado, ou frutinha...🙄
